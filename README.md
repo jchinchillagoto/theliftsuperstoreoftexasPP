@@ -6,7 +6,7 @@ The Lift Super Store of Texas by Automotive Business Concepts (“we,” “our,
 
 Business Information
 
-The Lift Super Store of Texas
+The Lift Super Store of Texas by Automotive Business Concepts
 5800 Rittiman Plz
 San Antonio, TX 78218
 Email: grant@abcintx.com
@@ -72,7 +72,7 @@ Contact Us
 
 If you have questions about this Privacy Policy or SMS communications, contact:
 
-The Lift Super Store of Texas
+The Lift Super Store of Texas by Automotive Business Concepts
 5800 Rittiman Plz
 San Antonio, TX 78218
 Email: grant@abcintx.com
